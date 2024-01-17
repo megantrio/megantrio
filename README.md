@@ -1,1 +1,1 @@
-###GAME Sound Designer Megan Kim.
+GAME Sound Designer Megan Kim.
